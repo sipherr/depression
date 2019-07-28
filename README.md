@@ -14,7 +14,7 @@ It is extremely important to have a set of clear goals in order to acheive to gr
 My culture in Noterhn Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored them and deceived myself that it was just related to martital issues and difficulties in communication.
 
 # Diet
-This diet was suggested by Dr. Jordan Peterson.
+This diet was suggested by Dr. Jordan Peterson. Original can be found here: https://mikhailapeterson.com/2016/12/07/the-list/
 
 ## Meats
 - turkey
