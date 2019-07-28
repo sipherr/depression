@@ -79,13 +79,14 @@ Structure and routine are very important in overcoming depression.
 - takes your mind of events/issues that may be inducing an episode.
 - creates healthy habbits
 
-Communication
--------------
+# Mariage
+
+## Communication
 I haven't figured this one out yet.
+## Intimacy
+I need to show my wife more love! Do special things for her.
 
-
-Managing anger
---------------
+# Managing anger
 As a married man, anger and depression is a big issue for me. When conflict between me and my wife arises, I find it difficult to snap.
 
 # Drugs & Alcohol
