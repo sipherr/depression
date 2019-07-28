@@ -1,10 +1,8 @@
 # Introduction
 Now that I know I have depression I want to document what may be a more straight forward solution to overcoming depression.
 
-
-- STRUCTURE (everything on schedule...dishes..laundry... etc)
-- quit smoking
-- limit drugs and alchol
+#Goals
+It is extremely important to have goals. Even small ones it force you to manifest change in yourself.
 
 # Signs and Symptoms
 My culture in Noterhn Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored them and deceived myself that it was just related to martital issues and difficulties in communication.
