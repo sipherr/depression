@@ -81,6 +81,11 @@ Structure and routine are very important in overcoming depression.
 
 # Mariage
 
+## Apology
+You may have acted out in many awful ways and your partner likely expects you to offer a sincere apology.
+
+Ideas?
+
 ## Communication
 I haven't figured this one out yet.
 ## Intimacy
