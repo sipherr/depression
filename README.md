@@ -82,17 +82,18 @@ Spices/Seasonings
 - black tea- check the ingredients. buy loose leaf if possible
 - green tea- check the ingredients. buy loose leaf if possible
 
+## Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
+- vodka
+- bourbon and American Whiskey labeled “straight” whiskey
+
 # Sleep
 You need a regular sleep routine
 
 # Hygene
 - brush your teeth twice a day 
 - Shower atleast once a day
-- Do not avoid going to the doctor (
-
-## Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
-- vodka
-- bourbon and American Whiskey labeled “straight” whiskey
+- Do not avoid going to the doctor (untreated hemeroids...ya fun right, lol)
+- Take pride in how you look (New clothes that fit)
 
 # Schedule & Routine
 Structure and routine are very important in overcoming depression.
@@ -106,11 +107,9 @@ You <b>NEED</b> a fitness routine. The benefits of this will become clear.
 
 - Flatter her 
 - Take her to dinner ... plan dates
-- buy her stuff....flowers shoes jewlery. KNow her size :) Get her sexy stuff hehe
-- spa day
-- 
+- Buy her stuff....flowers shoes jewlery. KNow her size :) Get her sexy stuff hehe
+- Spa day
 - Tell her you love her
-
 
 ## Apology
 You may have acted out in many awful ways and your partner likely expects you to offer a sincere apology.
