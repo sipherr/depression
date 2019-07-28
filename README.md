@@ -1,5 +1,7 @@
+# The Mans Guide to overcoming depression
+
 # Introduction
-Now that I know I have depression I want to document what may be a more straight forward solution to overcoming depression.
+Looking for resources on the internet, I was unable to find a good strategy to overcoming depression. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression.
 
 # Goals
 First and foremost is to overcome depression! 
