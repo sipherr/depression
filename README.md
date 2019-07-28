@@ -17,38 +17,37 @@ My culture in Noterhn Ontario (Sudbury), Canada heavily stigmatized depression a
 This diet was suggested by Dr. Jordan Peterson.
 
 ## Meats
-turkey
-beef
-chicken
-lamb
-duck
-wild game is fine too, elk, moose, etc.
-wild salmon
-tuna – check the ingredients! Get stuff that’s just tuna and water and perhaps salt.
-organ meat – chicken liver tastes the best I find
-wild herring – check the ingredients!
-wild sardines – check the ingredients!
+- turkey
+- beef
+- chicken
+- lamb
+- duck
+- wild game is fine too, elk, moose, etc.
+- wild salmon
+- tuna – check the ingredients! Get stuff that’s just tuna and water and perhaps salt.
+- organ meat – chicken liver tastes the best I find
+- wild herring – check the ingredients!
+- wild sardines – check the ingredients!
 
 ## Veggies
-
-lettuce
-arugula
-arugula microgreens (arugula sprouts)
-cucumber
-swiss chard
-seaweed –check the ingredients! this is hard to find without soy and other things. The brand I’ve linked to is safe and really tasty
-cilantro
-collard greens
-broccoli
-turnips
-cauliflower
-parsnips
-sweet potatoes
-spinach
+- lettuce
+- arugula
+- arugula microgreens (arugula sprouts)
+- cucumber
+- swiss chard
+- seaweed –check the ingredients! this is hard to find without soy and other things. The brand I’ve linked to is safe and really tasty
+- cilantro
+- collard greens
+- broccoli
+- turnips
+- cauliflower
+- parsnips
+- sweet potatoes
+- spinach
 
 ## Fruit
 
-olives – check the ingredients! see my olive post. be super careful about which brands you buy here too, many have preservatives and flavours and dyes.
+- olives – check the ingredients! see my olive post. be super careful about which brands you buy here too, many have preservatives and flavours and dyes.
 Vinegars:
 
 apple cider vinegar – try to get the organic stuff so there aren’t dyes and flavours added
@@ -58,28 +57,30 @@ coconut oil – get unrefined. And try to avoid the Nutiva brand. It’s everywh
 olive oil – make sure your olive oil is pure olive oil. Sometimes it’s also soybean oil!
 Spices/Seasonings
 
-salt
-pepper
-marjoram
-parsley
-oregano
-thyme
-rosemary
-peppermint
-turmeric
-basil
-bay leaf
-coriander
-Other:
+- salt
+- pepper
+- marjoram
+- parsley
+- oregano
+- thyme
+- rosemary
+- peppermint
+- turmeric
+- basil
+- bay leaf
+- coriander
 
-baking soda (probably won’t eat this but it’s good for toothpaste 🙂 )
-peppermint tea – check the ingredients. buy loose leaf (David’s sells an organic peppermint which is lovely) or organic. We want to make sure there aren’t preservatives or flavours added. White tea bags or coffee filters are often bleached with sulfites. If you’re super sensitive (dad and I), you’ll react to these. So make sure you get organic tea bags as well!
-black tea- check the ingredients. buy loose leaf if possible
-green tea- check the ingredients. buy loose leaf if possible
-Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
+## Other
 
-vodka
-bourbon and American Whiskey labeled “straight” whiskey
+- baking soda (probably won’t eat this but it’s good for toothpaste 🙂 )
+- peppermint tea – check the ingredients. buy loose leaf (David’s sells an organic peppermint which is lovely) or organic. We want to make sure there aren’t preservatives or flavours added. White tea bags or coffee filters are often bleached with sulfites. If you’re super sensitive (dad and I), you’ll react to these. So make sure you get organic tea bags as well!
+- black tea- check the ingredients. buy loose leaf if possible
+- green tea- check the ingredients. buy loose leaf if possible
+
+## Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
+- vodka
+- bourbon and American Whiskey labeled “straight” whiskey
+
 # Schedule & Routine
 Structure and routine are very important in overcoming depression.
 - takes your mind of events/issues that may be inducing an episode.
