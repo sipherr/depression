@@ -82,6 +82,14 @@ Spices/Seasonings
 - black tea- check the ingredients. buy loose leaf if possible
 - green tea- check the ingredients. buy loose leaf if possible
 
+# Sleep
+You need a regular sleep routine
+
+# Hygene
+- brush your teeth twice a day 
+- Shower atleast once a day
+- Do not avoid going to the doctor (
+
 ## Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
 - vodka
 - bourbon and American Whiskey labeled “straight” whiskey
