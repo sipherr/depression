@@ -1,7 +1,10 @@
 # The Mans Guide to overcoming depression
+First of all, the first step is to accept you have a mental illness. I fought this harddd
 
 # Introduction
-Looking for resources on the internet, I was unable to find a good strategy to overcoming depression. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression.
+Looking for resources on the internet, I was unable to find a good strategy to overcoming depression. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression.  
+
+Most of the self help ressources out there were vague and did not provide a clear path to recovery. Diet, routine and understand the source of your depression will move you forward in overcoming this monster.
 
 # Goals
 First and foremost is to overcome depression! 
@@ -88,7 +91,18 @@ Structure and routine are very important in overcoming depression.
 - takes your mind of events/issues that may be inducing an episode.
 - creates healthy habbits
 
+# Fitness
+You <b>NEED</b> a fitness routine. The benefits of this will become clear.
+
 # Mariage
+
+- Flatter her 
+- Take her to dinner ... plan dates
+- buy her stuff....flowers shoes jewlery. KNow her size :) Get her sexy stuff hehe
+- spa day
+- 
+- Tell her you love her
+
 
 ## Apology
 You may have acted out in many awful ways and your partner likely expects you to offer a sincere apology.
@@ -105,3 +119,9 @@ As a married man, anger and depression is a big issue for me. When conflict betw
 
 # Drugs & Alcohol
 Alcohol certainly exagerate feelings of anger.
+
+# References
+- https://mikhailapeterson.com/2016/12/07/the-list/
+- https://goodmenproject.com/featured-content/how-to-be-depressed-and-not-wreck-your-marriage-bmartin/
+- https://goodmenproject.com/featured-content/how-to-be-depressed-and-not-lose-your-marriage-part-ii-bmartin/
+- 
