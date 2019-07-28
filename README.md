@@ -2,8 +2,11 @@
 Now that I know I have depression I want to document what may be a more straight forward solution to overcoming depression.
 
 # Goals
-It is extremely important to have goals. Even small ones it force you to manifest change in yourself.
+First and foremost is to overcome depression! 
 
+It is extremely important to have a set of clear goals in order to acheive to grand goal. Even small ones it force you to manifest change in yourself.
+
+- lose weight
 - quit smoking
 - setup a "allowed" time to endulge in alcohol or marijuna (altho not recommended)
 
