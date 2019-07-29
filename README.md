@@ -51,17 +51,16 @@ This diet was suggested by Dr. Jordan Peterson. Original can be found here: http
 - spinach
 
 ## Fruit
-
 - olives – check the ingredients! see my olive post. be super careful about which brands you buy here too, many have preservatives and flavours and dyes.
-Vinegars:
 
-apple cider vinegar – try to get the organic stuff so there aren’t dyes and flavours added
-Oils:
+## Vinegars
+- applice cider
 
-coconut oil – get unrefined. And try to avoid the Nutiva brand. It’s everywhere but it doesn’t taste as good, and I’ve had ones that have gone bad before.
-olive oil – make sure your olive oil is pure olive oil. Sometimes it’s also soybean oil!
-Spices/Seasonings
+## Oils:
+- coconut oil – get unrefined. And try to avoid the Nutiva brand. It’s everywhere but it doesn’t taste as good, and I’ve had ones that have gone bad before.
+- olive oil – make sure your olive oil is pure olive oil. Sometimes it’s also soybean oil!
 
+## Spices/Seasonings
 - salt
 - pepper
 - marjoram
@@ -75,9 +74,7 @@ Spices/Seasonings
 - bay leaf
 - coriander
 
-## Other
-
-- baking soda (probably won’t eat this but it’s good for toothpaste 🙂 )
+## Beverages
 - peppermint tea – check the ingredients. buy loose leaf (David’s sells an organic peppermint which is lovely) or organic. We want to make sure there aren’t preservatives or flavours added. White tea bags or coffee filters are often bleached with sulfites. If you’re super sensitive (dad and I), you’ll react to these. So make sure you get organic tea bags as well!
 - black tea- check the ingredients. buy loose leaf if possible
 - green tea- check the ingredients. buy loose leaf if possible
@@ -97,7 +94,7 @@ You need a regular sleep routine. In bed before midnight at minimum. Awake @ 7.
 - brush your teeth twice a day 
 - Shower atleast once a day
 - Do not avoid going to the doctor (untreated hemeroids...ya fun right, lol)
-- Take pride in how you look (New clothes that fit)
+- Take pride in how you look (New clothes that fit, comfortable shoes, try to look good generally.)
 
 # Schedule & Routine
 Structure and routine are very important in overcoming depression.
@@ -110,7 +107,10 @@ You <b>NEED</b> a fitness routine. The benefits of this will become clear.
 ##Ideas
 - bike riding
 - MMA
-- 
+- hockey
+- football
+- tenis
+- PICK A SPORT! or 2...
 
 # Mariage
 - Plan a vacation (do everything, treat her)
