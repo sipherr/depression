@@ -2,7 +2,7 @@
 First of all, the first step is to accept you have a mental illness. I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect).
 
 # Introduction
-Looking for resources on the internet, I was unable to find a good strategy to overcoming depression. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression.  
+Through my personal journey looking for resources on the internet in regards to depression, I was unable to find a good strategy to help over this thing that I have lived with for so long. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression for others *this may not work for everyone!*
 
 Most of the self help ressources out there were vague and did not provide a clear path to recovery. Diet, routine and understand the source of your depression will move you forward in overcoming this monster.
 
