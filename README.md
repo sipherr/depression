@@ -128,9 +128,9 @@ Structure and routine are very important in overcoming depression.
 - creates healthy habbits
 
 # Fitness
-You <b>NEED</b> a fitness routine. The benefits of this will become clear.
+You <b>NEED</b> a fitness routine. The benefits of this will become clear. Physically and mentally your require some activity.
 
-##Ideas
+## Ideas
 - bike riding
 - MMA
 - hockey
@@ -139,6 +139,7 @@ You <b>NEED</b> a fitness routine. The benefits of this will become clear.
 - PICK A SPORT! or 2...
 
 # Mariage
+This one men have trouble with.
 - Plan a vacation (do everything, treat her)
 - Flatter her (hey beautiful, gorgeous)
 - Take her to dinner ... plan dates (sushi,keg..gotta keep in line with the diet)
@@ -166,4 +167,6 @@ Alcohol certainly exagerate feelings of anger.
 - https://mikhailapeterson.com/2016/12/07/the-list/
 - https://goodmenproject.com/featured-content/how-to-be-depressed-and-not-wreck-your-marriage-bmartin/
 - https://goodmenproject.com/featured-content/how-to-be-depressed-and-not-lose-your-marriage-part-ii-bmartin/
-- 
+- https://www.mayoclinic.org/diseases-conditions/depression/in-depth/male-depression/art-20046216
+- https://www.youtube.com/watch?v=Xm_2zmX6Akc
+- https://www.youtube.com/watch?v=16J-lCSSMVA (when he talks about addiction and how he can be sober!)
