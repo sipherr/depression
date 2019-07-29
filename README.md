@@ -1,5 +1,5 @@
 # The Mans Guide to overcoming depression
-First of all, the first step is to accept you have a mental illness. I fought this harddd
+First of all, the first step is to accept you have a mental illness. I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect).
 
 # Introduction
 Looking for resources on the internet, I was unable to find a good strategy to overcoming depression. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression.  
@@ -9,11 +9,12 @@ Most of the self help ressources out there were vague and did not provide a clea
 # Goals
 First and foremost is to overcome depression! 
 
-It is extremely important to have a set of clear goals in order to acheive to grand goal. Even small ones it force you to manifest change in yourself.
+It is extremely important to have a set of clear goals in order to acheive to grand goal. Even small goals will force you to manifest change in yourself.
 
 - lose weight
 - quit smoking
-- setup a "allowed" time to endulge in alcohol or marijuna (altho not recommended)
+
+And a more indirect goal: Be the sholder
 
 # Signs and Symptoms
 My culture in Noterhn Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored them and deceived myself that it was just related to martital issues and difficulties in communication.
@@ -79,16 +80,21 @@ This diet was suggested by Dr. Jordan Peterson. Original can be found here: http
 - black tea- check the ingredients. buy loose leaf if possible
 - green tea- check the ingredients. buy loose leaf if possible
 
-## Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
+## Alcohol 
+Setup times when it's ok to consume. A good guideline is to not consume alcohol for the first month. 
 - vodka (ice tea, fruits)
 - bourbon & whiskey (water and ice)
--
+- ?
 
 ## Marijuana
 The so called "weed hangover" has returned. I haven't experienced it since high school.
+- Indica so far seems find (mild morning "hangover")
 
 # Sleep
 You need a regular sleep routine. In bed before midnight at minimum. Awake @ 7.
+
+## Can't sleep?
+- not sure yet...
 
 # Hygene
 - brush your teeth twice a day 
