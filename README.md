@@ -83,11 +83,15 @@ Spices/Seasonings
 - green tea- check the ingredients. buy loose leaf if possible
 
 ## Alcohol – not for the first month. I can kinda handle it, but lots of people can’t.
-- vodka
-- bourbon and American Whiskey labeled “straight” whiskey
+- vodka (ice tea, fruits)
+- bourbon & whiskey (water and ice)
+-
+
+## Marijuana
+The so called "weed hangover" has returned. I haven't experienced it since high school.
 
 # Sleep
-You need a regular sleep routine
+You need a regular sleep routine. In bed before midnight at minimum. Awake @ 7.
 
 # Hygene
 - brush your teeth twice a day 
@@ -103,12 +107,17 @@ Structure and routine are very important in overcoming depression.
 # Fitness
 You <b>NEED</b> a fitness routine. The benefits of this will become clear.
 
-# Mariage
+##Ideas
+- bike riding
+- MMA
+- 
 
-- Flatter her 
-- Take her to dinner ... plan dates
-- Buy her stuff....flowers shoes jewlery. KNow her size :) Get her sexy stuff hehe
-- Spa day
+# Mariage
+- Plan a vacation (do everything, treat her)
+- Flatter her (hey beautiful, gorgeous)
+- Take her to dinner ... plan dates (sushi,keg..gotta keep in line with the diet)
+- Buy her stuff....flowers shoes jewlery. (Know her size :) Get her sexy stuff hehe langerie?)
+- Spa day (you set it up for her)
 - Tell her you love her
 
 ## Apology
