@@ -11,22 +11,24 @@ First and foremost, your main goal is to overcome depression! It is not an easy 
 
 It is extremely important to have a set of clear goals in order to acheive to grand goal. Even small goals will force you to manifest change in yourself.
 
-- lose weight
-- quit smoking
+- Lose weight
+- Quit smoking
+- Save money for something you want
 
 It is also important to have more "abstracted" goals such as
-- being an emotional support during a family crisis
-- the shoulder to cry on at a funeral
+- Be an emotional support during a family crisis
+- The shoulder to cry on at a funeral
 
 # Signs and Symptoms
 My culture in Noterhn Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored them and deceived myself that it was just related to martital issues and difficulties in communication.
 
 Like women with depression, men with depression may:
 
-Feel sad, hopeless or empty
-Feel extremely tired
-Have difficulty sleeping or sleep too much
-Not get pleasure from activities usually enjoyed
+- Feel sad, hopeless or empty
+- Feel extremely tired
+- Have difficulty sleeping or sleep too much
+- Not get pleasure from activities usually enjoyed
+
 Other behaviors in men that could be signs of depression — but not recognized as such — include:
 
 - Escapist behavior, such as spending a lot of time at work or on sports
