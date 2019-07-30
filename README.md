@@ -38,7 +38,9 @@ It is also important to have more "abstracted" goals such as
 - The shoulder to cry on at a funeral
 
 # Signs and Symptoms
-My culture in Noterhn Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored them and deceived myself that it was just related to martital issues and difficulties in communication.
+My culture in Nothern Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife to communicate that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored any offer for help and deceived myself that it was just related to martital issues and difficulties in communication. I was pushing the problems on her when in reality it was me all along. Maybe, she has some things to work on but she clearly has it more together than me.
+
+I'm not a doctor but I feel if the bottom half (men) applies to you, then you likely have depression.
 
 Like women with depression, men with depression may:
 
