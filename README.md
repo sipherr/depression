@@ -16,8 +16,9 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 ## Tomorrow
 - Goto the dump
 - Hair cut
-- get chain fixed
+- Get chain fixed
 - Sea doo ride and bike ride? We will see
+- If you can...order OZ of Pine Tar Kush...shit is killer
 
 ## Oher List of things to do
 
