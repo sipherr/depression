@@ -1,5 +1,7 @@
 # The Mans Guide to overcoming depression
-First of all, the first step is to accept you have a mental illness. I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My life was full of it.
+First of all, the first step is to <b>acknoledge you have a mental illness</b>. 
+
+I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My life was full of it.
 
 # Journal
 
