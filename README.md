@@ -171,7 +171,10 @@ You may have acted out in many awful ways and your partner likely expects you to
 Ideas?
 
 ## Communication
-I haven't figured this one out yet.
+I haven't figured this one out yet...Here's something I know helps.
+
+When things get heated...communicate via email. This seems very effective for us. It allows more expression vs using txt messages on mobile (avoid using phone calls / in person communications).
+
 ## Intimacy
 I need to show my wife more love! Do special things for her.
 
