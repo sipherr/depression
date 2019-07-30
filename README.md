@@ -21,7 +21,7 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 
 ## Oher List of things to do
 
-- Get home efficiency rebate
+- Get home efficiency rebate (light suction plates, insulate the basement, ?)
 - New carpets on the stairs and refinish railings
 - Install bike rack (maybe replace the hinges?)
 - Install light fixtures outside (only had them for 3 years you lazy fuck)
