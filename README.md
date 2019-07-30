@@ -112,7 +112,7 @@ This diet was suggested by Dr. Jordan Peterson. Original can be found here: http
 ## Vinegars
 - applice cider
 
-## Oils:
+## Oils
 - coconut oil – get unrefined. And try to avoid the Nutiva brand. It’s everywhere but it doesn’t taste as good, and I’ve had ones that have gone bad before.
 - olive oil – make sure your olive oil is pure olive oil. Sometimes it’s also soybean oil!
 
