@@ -32,10 +32,12 @@ It is extremely important to have a set of clear goals in order to acheive to gr
 - Lose weight
 - Quit smoking
 - Save money for something you want
+- Get some friends nearby! 
 
 It is also important to have more "abstracted" goals such as
 - Be an emotional support during a family crisis
 - The shoulder to cry on at a funeral
+- Be reliable for family and friends
 
 # Signs and Symptoms
 My culture in Nothern Ontario (Sudbury), Canada heavily stigmatized depression and mental illnes. Despite many attempts from my wife to communicate that I had a mental illness (bipolar, split personality...which I was epicly offended by) I ignored any offer for help and deceived myself that it was just related to martital issues and difficulties in communication. I was pushing the problems on her when in reality it was me all along. Maybe, she has some things to work on but she clearly has it more together than me.
