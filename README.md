@@ -1,5 +1,5 @@
 # The Mans Guide to overcoming depression
-The first step is to <b>acknoledge you have a mental illness</b>. 
+The first step is to <b>acknowledge you have a mental illness</b>. 
 
 This task can be exceedingly difficult for most men. We do not want to accept any perceived weakness from our peers. Let me tell you, your weaknesses will shine when your wife leaves, you are broke or some other catostrophic event comes at the hands of your poor choices.
 
