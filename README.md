@@ -23,6 +23,7 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 
 - Install bike rack (maybe replace the hinges?)
 - Install light fixtures outside (only had them for 3 years you lazy fuck)
+- Buy and install new rage hood (stupid shit birds)
 - Properlly mount the security cameras (no half assed install)
 - Bathroom renovations upstairs (You figure it out. Don't leave it on Victoria)
 - Backyard / front yard renovations (This is your man project)
