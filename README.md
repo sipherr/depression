@@ -1,6 +1,24 @@
 # The Mans Guide to overcoming depression
 First of all, the first step is to accept you have a mental illness. I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect).
 
+# Journal
+My personal journal...I'll leave some of here so anyone else can structure based on this. Bascily I keep track of whats up for tomorrow and anything that can be added to the "Tomorrow" plan. Keep a list of bigger tasks and tackle them according to your schedule.
+
+## Tomorrow
+- Goto the dump
+- Hair cut
+- get chain fixed
+- Sea doo ride and bike ride? We will see
+
+## Oher List of things to do
+
+- Install bike rack (maybe replace the hinges?)
+- Install light fixtures outside (only had them for 3 years you lazy fuck)
+- Properlly mount the security cameras (no half assed install)
+- Bathroom renovations upstairs (You figure it out. Don't leave it on Victoria)
+- Backyard / front yard renovations (This is your man project)
+- Finish the walls / storage in the garage (another one...)
+
 # Introduction
 Through my personal journey looking for resources on the internet in regards to depression, I was unable to find a good strategy to help over this thing that I have lived with for so long. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression for others *<b>this may not work for everyone!</b>*
 
