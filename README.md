@@ -171,10 +171,11 @@ This one men have trouble with.
 - Spa day (you set it up for her)
 - Tell her you love her
 
-## Apology
-You may have acted out in many awful ways and your partner likely expects you to offer a sincere apology.
+## Apologize
+You may have acted out in many awful ways and your partner likely expects you to offer a sincere apology. "I'm sorry" just won't cut it. You need to tell her you understand that you are the problem.
 
-Ideas?
+- Buy the biggest most beautiful bouquet of flowers you can afford
+- Take her on a special dinner
 
 ## Communication
 I haven't figured this one out yet...Here's something I know helps.
