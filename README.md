@@ -57,7 +57,9 @@ Other behaviors in men that could be signs of depression — but not recognized 
 - Controlling, violent or abusive behavior
 - Irritability or inappropriate anger
 - Risky behavior, such as reckless driving
-- Nail biting, figiting (this could also be signs of other mental disorders)
+- Nail biting, figiting (which are lso signs of other mental illnesses)
+--Pictures
+
 
 # Diet
 This diet was suggested by Dr. Jordan Peterson. Original can be found here: https://mikhailapeterson.com/2016/12/07/the-list/
