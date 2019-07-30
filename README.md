@@ -3,9 +3,9 @@ The first step is to <b>acknowledge you have a mental illness!!!</b>.
 
 This task can be exceedingly difficult for most men. We do not want to accept any perceived weakness from our peers. Let me tell you, your weaknesses will shine when your wife leaves, you are broke or some other catostrophic event comes at the hands of your poor choices.
 
-I don't know exactly when I would say I became "depressed" but I can tell you the effects are real. As I'm writing this my wife has been at a hotel for nearly a week, after I (her supposed husband) launched an assult on her and her charater (smear capaign) with the delibrate intentions of hurting her. The cruel results for both of us are that she feels humuliated by my actions and for me, that my wife isn't sitting here with me. I love her.
+I don't know exactly when I would say I became "depressed" but I can tell you the effects are real. As I'm writing this my wife has been at a hotel for nearly a week, after I (her supposed husband) launched an assult on her and her charater (smear capaign) with the delibrate intentions of hurting her. The cruel results for both of us are that she feels humuliated by my actions and me, that my wife isn't sitting here with me. I love her.
 
-I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My life was full of it. Only after the 5th? time me and my wife had MAJOR fights related to infidelty did I realize the problem is <b>ME and you</b> (you the reader).
+I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect on). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My list of bad habits and lazy behaviours was long. Only after the 5th? time me and my wife had MAJOR fights related to infidelty did I realize the problem is <b>ME and you</b> (you the reader).
 
 # Journal
 
@@ -63,12 +63,14 @@ Like women with depression, men with depression may:
 Other behaviors in men that could be signs of depression — but not recognized as such — include:
 
 - Escapist behavior, such as spending a lot of time at work or on sports
-- Physical symptoms, such as headaches, digestive problems and pain
-- Problems with alcohol or drug use
-- Controlling, violent or abusive behavior
-- Irritability or inappropriate anger
-- Risky behavior, such as reckless driving
+- Physical symptoms, such as headaches, digestive problems, arthritic type pain and pain (joints creak)
+- Problems with alcohol or drug use (you use it to numb out)
+- Controlling, violent or abusive behavior (verbal and "smear" campains count)
+- Irritability or inappropriate anger 
+- Risky behavior, such as reckless driving (sexual encounters, intoxicated driving)
 - Nail biting, figiting (which are lso signs of other mental illnesses)
+
+
 --Pictures
 
 
