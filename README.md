@@ -15,6 +15,7 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 
 ## Tomorrow
 - Goto the dump
+- Call for new carpets
 - More laundry
 - Hair cut
 - Get chain fixed
@@ -24,9 +25,10 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 ## Oher List of things to do
 
 - Get home efficiency rebate (light suction plates, insulate the basement, ?)
-- New carpets on the stairs and refinish railings
+- New carpets on the stairs and refinish railings (paint them white?)
 - Install bike rack (maybe replace the hinges?)
 - Install light fixtures outside (only had them for 3 years you lazy fuck)
+- Install a fireplace in the backyard
 - Buy and install new rage hood (stupid shit birds)
 - Properlly mount the security cameras (no half assed install)
 - Bathroom renovations upstairs (You figure it out. Don't leave it on Victoria)
