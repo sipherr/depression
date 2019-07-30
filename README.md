@@ -15,6 +15,7 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 
 ## Tomorrow
 - Goto the dump
+- More laundry
 - Hair cut
 - Get chain fixed
 - Sea doo ride and bike ride? We will see
@@ -36,6 +37,16 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 Through my personal journey looking for resources on the internet in regards to depression, I was unable to find a good strategy to help over this thing that I have lived with for so long. Now that I know I have depression, it is making it easier to understand my behaviours of the past and identify a path forward. I want to document what may be a more straight forward solution to overcoming depression for others *<b>this may not work for everyone!</b>*
 
 Most of the self help ressources out there were vague and did not provide a clear path to recovery. Diet, routine and understand the source of your depression will move you forward in overcoming this monster.
+
+# Benefits
+These are something things that I noticed. This is all anecdotle and recorded for my own interest.
+
+I noticed all of this within the first 3 days. I have yet to see if these improvements continue.
+
+- Cigarette stains VANISHED. scrubbed and scrubbed never leave...1 day..gone.? POssible? coincidence?
+- Clear thinking
+- Stopped biting my nails (I stopped for 3 months once in 37 years!!)
+- Motivated
 
 # Goals
 First and foremost, your main goal is to overcome depression! It is not an easy task and will require major changes in your day to day life.
