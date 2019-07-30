@@ -5,7 +5,7 @@ This task can be exceedingly difficult for most men. We do not want to accept an
 
 I don't know exactly when I would say I became "depressed" but I can tell you the effects are real. As I'm writing this my wife has been at a hotel for nearly a week, after I (her supposed husband) launched an assult on her and her charater (smear capaign) with the delibrate intentions of hurting her. The cruel results for both of us are that she feels humuliated by my actions and for me, that my wife isn't sitting here with me. I love her.
 
-I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My life was full of it.
+I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My life was full of it. Only after the 5th? time me and my wife had MAJOR fights related to infidelty did I realize the problem is <b>ME and you</b> (you the reader).
 
 # Journal
 
