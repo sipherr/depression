@@ -1,7 +1,10 @@
 # The Mans Guide to overcoming depression
-First of all, the first step is to accept you have a mental illness. I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect).
+First of all, the first step is to accept you have a mental illness. I fought this harddd. I found myself going to the doctors office often, digestive issues (Gastritis)  and skin problems (doctors all had different opinons of the skin conditions which none of the medications had any effect). Disorder and chaos (do you clean your living area? do you neglect doing laundry?) bread depression. My life was full of it.
 
 # Journal
+
+In order to keep structure in your life.
+
 My personal journal...I'll leave some of here so anyone else can structure based on this. Bascily I keep track of whats up for tomorrow and anything that can be added to the "Tomorrow" plan. Keep a list of bigger tasks and tackle them according to your schedule.
 
 ## Tomorrow
