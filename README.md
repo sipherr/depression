@@ -221,7 +221,7 @@ As a married man, anger and depression is a big issue for me. When conflict betw
 Alcohol certainly exagerate feelings of anger.
 
 # Videos
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SsKT0s5J8ko" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+- https://www.youtube.com/embed/SsKT0s5J8ko
 
 # References
 - https://mikhailapeterson.com/2016/12/07/the-list/
