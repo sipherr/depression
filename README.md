@@ -14,11 +14,11 @@ In order to keep structure in your life.
 This is my personal journal...I'll leave some of it here so anyone else can structure there "journal" based on this. Bascily I keep track of whats up for tomorrow and anything that can be added to the "Tomorrow" plan. Keep a list of bigger tasks and tackle them according to your schedule.
 
 ## Tomorrow
+- Call Silverio and let him know Monday
 - Goto the dump
 - Call for new carpets
 - More laundry
-- Hair cut
-- Get chain fixed
+- Get chain fixed (in progress)
 - Sea doo ride and bike ride? We will see
 - If you can...order OZ of Pine Tar Kush...shit is killer
 
@@ -46,9 +46,10 @@ These are something things that I noticed. This is all anecdotle and recorded fo
 I noticed all of this within the first 3 days. I have yet to see if these improvements continue.
 
 - Cigarette stains VANISHED. scrubbed and scrubbed never leave...1 day..gone.? POssible? coincidence?
-- Clear thinking
+- apetite increased (salivate)
+- Clear thinking (it's persisting...)
 - Stopped biting my nails (I stopped for 3 months once in 37 years!!)
-- Motivated
+- Motivated (can't stop doing things)
 
 # Goals
 First and foremost, your main goal is to overcome depression! It is not an easy task and will require major changes in your day to day life.
@@ -218,6 +219,9 @@ As a married man, anger and depression is a big issue for me. When conflict betw
 
 # Drugs & Alcohol
 Alcohol certainly exagerate feelings of anger.
+
+# Videos
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SsKT0s5J8ko" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 # References
 - https://mikhailapeterson.com/2016/12/07/the-list/
