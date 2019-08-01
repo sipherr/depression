@@ -20,6 +20,8 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 - More laundry
 - Get chain fixed (in progress)
 - Sea doo ride and bike ride? We will see
+- order grow tent
+- change front closet door
 
 ## Oher List of things to do
 
