@@ -22,6 +22,7 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 - Sea doo ride and bike ride? We will see
 - order grow tent
 - change front closet door
+- Ikea sit stand desk
 
 ## Oher List of things to do
 
