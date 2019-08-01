@@ -14,6 +14,7 @@ In order to keep structure in your life.
 This is my personal journal...I'll leave some of it here so anyone else can structure there "journal" based on this. Bascily I keep track of whats up for tomorrow and anything that can be added to the "Tomorrow" plan. Keep a list of bigger tasks and tackle them according to your schedule.
 
 ## Tomorrow
+- Goto the bank
 - Call Silverio and let him know Tuesday (Monday is a holiday)
 - Seadoo life jackets ... rachet straps
 - Call for new carpets
