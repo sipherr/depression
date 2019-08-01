@@ -24,6 +24,7 @@ This is my personal journal...I'll leave some of it here so anyone else can stru
 - order grow tent
 - change front closet door
 - Ikea sit stand desk
+- Dry clean shirts and coat
 
 ## Oher List of things to do
 
